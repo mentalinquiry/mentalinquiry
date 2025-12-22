@@ -7,7 +7,8 @@
 
 
 
-⠀⠀⠀⠀⠀⠀⠀    ⠀⠀⠀         ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀     ⠀ ⠀⠀ ⠀![tumblr_3e795df17540ffafd505db2c49cacab5_684f8384_250](https://github.com/user-attachments/assets/7ccd3b33-4559-4dc5-9a0f-0e7ff5923c49)
+⠀⠀⠀⠀⠀⠀⠀    ⠀⠀⠀         ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀![Untitled611_20251222133718](https://github.com/user-attachments/assets/0770306a-2091-4566-977a-5bc51bcbc04c)
+
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀   ˡⁱᵗᵗˡᵉ ᵃᵍᵉ ᵘˢᵘᵃˡˡʸ ʳᵃⁿᵍᵉˢ ᶠʳᵒᵐ ³ ⁻⁻ ⁷
